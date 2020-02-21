@@ -1,1 +1,1 @@
-# terziguven.github.io
+# terziguven
